@@ -3,7 +3,7 @@
 
 The problem with done is that you’re not done done. 
 
-I’m a software engineer by day and we have a saying. It’s not done unless it’s done done. Haha, ok, so now you roll your eyes at me now? I told you my life was mundane. The idea behind done done is sure, you might be done with something, but if the task is still being worked, even if it’s not you working on it, then it’s not done done. 
+I’m a software engineer by day and we have a saying. It’s not done unless it’s done done. Listen, I told you my life was mundane. The idea behind done done is sure, you might be done with something, but if the task is still being worked, even if it’s not you working on it, then it’s not done done. 
 
 Sure, I was done, but I had to hope that there was work still left to be done. As long as breathe still filled my lungs I had to believe I wasn’t done done. I knew though there wasn’t a calvary coming, nor was there a lone hero that would come in and save the day. I knew this to be true, but I had to stall for as long as I could. It was hard, only because my mind wandered. I let it, only because I was out of ideas. 
 
@@ -49,7 +49,7 @@ As the man with the gun approached me there was a light knock on the door. He lo
 
 “Who are you?” I mumbled. 
 
-A simple wink of her eye left me more confused than ever and with that my eyes closed and I fell unconscious. And to think, all of this started with a brick thrown into my car window just a few months ago. 
+A simple wink of her eye left me more confused than ever and with that my eyes closed and I fell unconscious. And to think, all of this started with a brick thrown into my car window just a few da ago. 
 
 I can’t tell you where one goes when they fall unconscious. I can only tell you that wherever I was in unconscious land I woke up in a small room that was clearly in a doctors office waiting room. I had been here a thousand times before. Not only in real life, but in my countless nightmares too. People ask me all the time if I remember having cancer as a kid and the answer is always a resounding yes. Not because I remember every waking moment, but because the nightmares do not let you forget. 
 
@@ -57,9 +57,9 @@ There are about 20-30 that I’ve had over the past 20 years. They are all exact
 
 The room was bright. I remember the placement of every tongue depressor, the box of gloves, the thermometer, the cuff that gets too tight over your bicep to count your heart beat and a stack of magazines in the corner. Nothing really strange or unusual here but for some reason this time it all felt different and I couldn’t quite put my finger on it. 
 
-An older woman about 5’3 walked in with a large glowing smile on her face. Her long white coat was in pristine condition as her stethoscope hung around her neck. Her name badge read ‘Dr. O’. The name of course was shortened, it stood for Olender. Given she’d been at the hospital for so long everybody just called her Dr. O. Her hair, although dyed black, had grey hair throughout. It was short, neatly trimmed as if she had been in the military. Of course I knew she had been, in fact, the entire hospital was on a military base. My father being military meant that I’d get treatment on a military facility. 
+An older woman about 5’3 walked in with a large glowing smile on her face. Her long white coat was in pristine condition as her stethoscope hung around her neck. Her name badge read ‘Dr. O’. The name of course was shortened, it stood for Olender. Given she’d been at the hospital for so long everybody just called her Dr. O. Her hair, although dyed black, had grey throughout. It was short, neatly trimmed as if she had been in the military. Of course I knew she had been, in fact, the entire hospital was on a military base. My father being military meant that I’d get treatment on a military facility. 
 
-I reached out from the table to shake her hand as I always did. She grabbed it and shook. Her hand was massive, or perhaps it was just that as a 10 year old I was so tiny, but either way it was a confident shake. I’d only known her for a few weeks but she exuded confidence. She exuded hope and she had such an amazing attitude. When you are in a bad predicament, like having cancer, having hope and a good attitude is as good as the pills you pop. 
+I reached out from the table to shake her hand as I always did. She grabbed it and shook. Her hand was massive, or perhaps it was just that as a 10 year old I was so tiny, but either way it was a confident shake. I’d only known her for a few weeks but she exuded confidence. She exuded hope and she had such an amazing attitude. When you are in a bad predicament, like having cancer, having hope and a good attitude is as important as the pills you pop. 
 
 “Alex” she said “There isn’t much time, we need to get this done as quickly as possible so we can continue your treatment without delay. Take this.”
 
@@ -107,6 +107,6 @@ After a brief pause, she did.
 
 “He’s going to die, you know this. Do the right thing doctor. Leave your findings in the GENISIS folder and return it to me at once” the man ordered and turned to leave the room. 
 
-I closed my eyes and I could hear the faint sobs coming from Dr. O. A few moments had passed, a few deep breathes and a few sniffles and into my arm flowed a warm rush of fluids entering my body. 
+I closed my eyes and I could hear the faint sobs coming from Dr. O. A few moments had passed, a few deep breathes and a few sniffles and into my arm flowed a warm sensation quickly flowing throughout my body. 
 
 Not a moment later the sleeping pill had kicked in and my world slowly faded to black.

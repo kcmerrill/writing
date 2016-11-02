@@ -73,7 +73,7 @@ I didn’t know her but I felt like I had seen her somewhere. She was incredibly
 
 Who gave it to you?” the gun wielding man said. This time in a slow cool and calculated voice. 
 
-“I dunno man. I dunno what you’re talking about. I don’t know what any of you have been blabbering on about the past few months. Just get it over with.”
+“I dunno man. I dunno what you’re talking about. I don’t know what any of you have been blabbering on about the past few days. Just get it over with.”
 
 The sound was deafening and the pain excruciating as my ear drum ruptured when the man pulled the trigger missing my head and hitting the stone wall behind me. Bits of stone scattered like missiles in all directions and a cloud of dust began to rise. My head ringing, struggling to breathe and blood trickling now from my ear I didn’t know how much longer I’d remain conscious.
 
@@ -89,7 +89,7 @@ Just like that it was over. The man in business attire was dead with a bullet be
 
 I didn’t care anymore. Too exhausted to think, in too much pain to comprehend the seriousness that was taking place and too naive to know what the murderer wanted. 
 
-A wave of emotion came over me. Sure, I didn’t know what he wanted but I did know a lot. Surely I knew a lot right? Of course. I knew that my life had been mundane up until a few months ago. I knew that I had been different but didn’t quite understand why. I knew that I’d be alone the rest of my life and finally I knew how to deal with the bad hand I’d been dealt. Not only how to deal with it, but to accept and be happy with it. 
+A wave of emotion came over me. Sure, I didn’t know what he wanted but I did know a lot. Surely I knew a lot right? Of course. I knew that my life had been mundane up until a few days ago. I knew that I had been different but didn’t quite understand why. I knew that I’d be alone the rest of my life and finally I knew how to deal with the bad hand I’d been dealt. Not only how to deal with it, but to accept and be happy with it. 
 
 I had known a lot of things but in this very moment I knew I was broken. 
 
