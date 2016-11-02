@@ -113,7 +113,7 @@ He moved me over to the backseat of his police cruiser and opened the door. Put 
 
 How the heck did blood get under my fingernails? What exactly was the call about? What was the noise my neighbors heard? 
 
-About a half hour had passed and officer McCarthy came back to the car door where I was situated. I noticed while I was waiting another cop had pulled up next to my house and out came a small female figure holding a piece of paper. She handed it to officer McCarthy. Giving it a few glances he looked it up and down and then to me. 
+About a half hour had passed and officer McCarthy came back to the car door where I was situated. I noticed while I was waiting another cop had pulled up next to my house and out came a small red headed female figure holding a piece of paper. She handed it to officer McCarthy. Giving it a few glances he looked it up and down and then to me. 
 
 He began to slowly walk to where I was seated.
 
