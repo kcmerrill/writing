@@ -283,7 +283,7 @@ My phone appeared. Along with the money that was wrapped around the brick from e
 
 There was a piece of paper on the floor and I picked it up. It looked familiar. It should’ve been, as it was the piece of paper that was wrapped in money accompanying a brick that somehow found it’s way through my windshield. I opened it up and there was a message inside. 
 
-“Alex. Keep your blood to yourself. It can be used against you. We’ll explain later. 8pm tonight at 1632 Lasalle Street. Be there or be square.”
+“Alex. Keep your blood to yourself. We’ll explain later. 8pm tonight at 1632 Lasalle Street. Be there or be square.”
 
 Lovely. Just lovely. 
 
