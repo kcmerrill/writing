@@ -105,7 +105,7 @@ He picked up the vial and as he drew in the contents into the syringe it glowed 
 
 After a brief pause, she did. 
 
-“He’s going to die, you know this. Do the right thing doctor. Leave your findings in the GENISIS folder and return it to me at once” the man ordered and turned to leave the room. 
+“He’s going to die, you know this. Do the right thing doctor. Leave your findings in the GENESIS folder and return it to me at once” the man ordered and turned to leave the room. 
 
 I closed my eyes and I could hear the faint sobs coming from Dr. O. A few moments had passed, a few deep breathes and a few sniffles and into my arm flowed a warm sensation quickly flowing throughout my body. 
 
