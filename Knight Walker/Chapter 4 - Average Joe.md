@@ -11,11 +11,11 @@ I thought about screaming and kicking at everything in sight. I really did but I
 
 No response.
 
-We pulled off the highway not 5 minutes later as originally promised. The building was rather large and in the shape of a castle. There was a moat out front, a lowered drawbridge and a tower that one might find at Disney land where the damsel in distress might be found. There were a ton of cars in the parking lot but we went around back where there were quite a bit of men in suits situated around the doors. 3 black escalades, a few black limousines and a cop car at both the front and rear of the caravan both with lights flashing. If I hadn’t known any better I would’ve thought the President was here.
+We pulled off the highway not 5 minutes later as originally promised. The building was rather large and in the shape of a castle. There was a moat out front, a lowered drawbridge and a tower where the damsel in distress might be found. There were a ton of cars in the parking lot but we went around back where there were quite a bit of men in suits situated around the doors. 3 black escalades, a few black limousines and a cop car at both the front and rear of the caravan both with lights flashing. If I hadn’t known any better I would’ve thought the President was in town.
 
 I let out a sigh of relief after seeing the cop cars. Like a huge weight had been lifted off my shoulders. I was ok letting the legal process play out, I wasn’t ok with being sold off to the highest bidder. 
 
-“Don’t get too excited kid, he owns the cops. They work for him on the side and they make a salary’s worth of pay doing odd and ends job a few times a year then they do a whole year doing honest work.” McCarthy said. 
+“Don’t get too excited kid, he owns the us, the cops. We work for him on the side and make a salary’s worth of pay doing odd and ends job a few times a year then we do a whole year doing honest work.” McCarthy said. 
 
 I sighed a long drawn out breathe.  “Who is ‘he’ and what does he want with me? Why are you doing this?”. 
 
@@ -25,9 +25,9 @@ My head lowered and I closed my eyes. All of the thoughts of the day rushing bac
 
 “I’m not sure what you think you know about me, but I haven’t hurt anybody. The blood under my nails, while I can’t explain it, I promise I haven’t hurt anybody. Weird things happens to me in my sleep that I can’t explain. I re-arrange future. I clean my house. I wrestle with lamps. I do all kinds of crazy and stupid unexplainable things. I’d never hurt anybody McCarthy. I know it doesn’t change my current situation, but I just wanted to clear my conscious.” The words coming out of my mouth as if someone stole my lunch money. For some reason though I wasn’t scared of McCarthy. I wasn’t fearing for my life anymore, at least not at this moment. This seemed to be just business for McCarthy and while I couldn’t understand how an officer of the law could do such a thing, I could understand him getting paid. Ten thousand dollars was a lot of money. It could buy quite a bit of peace and mind and I could respect that. I was still afraid of what was going to happen but for the moment I was in positive state of mind. Things _had_ to start looking up. This too shall pass and a bunch of other cliches entered my thoughts.  
 
-“I figured as much boy”. McCarthy said matter of factly. “Looking at your calf it seemed to match like you’d scratched it too hard. Probably happened in your sleep. That’s what made me realize it was you who they were after. You fit the description”.
+“I figured as much boy”. McCarthy said matter of factly. “Looking at your calf it seems like you’d scratched it too hard. Probably happened in your sleep. Your neighbor describing the crazy things you did in your sleep. That’s what made me realize it was you who they were after. You fit the description”.
 
-I looked down at my legs and my left calf had deep red cuts on it. Five of them in total and I mentally imagined my had over the wounds and it seemed to have matched up. With all of the commotion that had taken place today I guess I didn’t really notice it. It didn’t need stitches but they were deep cuts and they were still raw. Of course, when I saw them and the sweat running over them they started to burn. 
+I looked down at my legs and my left calf had deep red cuts on it. Five of them in total and I mentally imagined my had over the wounds and it seemed to have matched up. With all of the commotion that had taken place today I guess I didn’t really notice it. It didn’t need stitches but they were deep cuts and they were still raw. Of course, when I saw them and the sweat running over them they started to burn letting me know of their existence. 
 
 I chuckled halfheartedly as I thought back to all the times I had accidentally hurt myself in my sleep. I’ve fallen down stairs, slammed my finger in my car door and stubbed my toes too many times to count. As if I was hulk I’d lift my bed over my head only to realize it was too heavy to sustain and drop it on my toes. Tear up my fingers in the process too. “I suppose this isn’t the first time I’ve done crazy things to myself.” I said aloud talking to only myself. 
 
@@ -55,15 +55,17 @@ Besides. What in the hell had I done to whomever was waiting for me behind those
 
 At least that’s what I kept telling myself when the group of men just stood there staring at me as they opened my door. 
 
-“Are we going to do this the easy way or the hard way?” The bigger of the men said to me. Beckoning me to come with him. I wanted no part of that so I chose the easy way. He grabbed me and literally lifted me out of the car. My feet off the ground until I got to the sidewalk and then he gently let me down. A few men opened each of the doors and I was taken inside. 
+“Are we going to do this the easy way or the hard way?” The bigger of the men said to me. Beckoning me to come with him. I wanted no part of that so I chose the easy way. He grabbed me and literally lifted me out of the car. My feet were off the ground until I got to the sidewalk and then he gently let me down. A few men opened each of the enormous doors and I was led inside. 
 
-The inside of the restaurant is exactly what you’d expect if you had gone after hours on Christmas. Chairs were upside down on their tables, the room was incredibly dark with only a few dimmed lights on. The smell of freshly baked bread filled the air and my belly rumbled reminding me that I still hadn’t eaten for the day. It was only noon but I typically would have had my coffee by now. 
+The interior of the restaurant is exactly what you’d expect if you had gone after hours on Christmas. Chairs were upside down on their tables, the room was incredibly dark with only a few dimmed lights on. The smell of freshly baked bread filled the air and my belly rumbled reminding me that I still hadn’t eaten for the day. It was only noon but I typically would have had my coffee by now. 
 
-The men led me inside to a back corner booth. One that looked like a sectional that happened to have a table next to it. Around the booth were a handful of men, also heavily armed with communication devices in their ears. When I had approached they parted making room around a lone chair. 
+The men led me inside to a back corner booth. One that looked like a sectional that happened to have a table next to it. Around the booth were a handful of men, heavily armed and with communication devices in their ears. When I had approached they parted making room around a lone chair. 
 
 Past the chair seated in the center of the booth was a short stout man. Perhaps middle aged but I couldn’t really tell given the low light made it hard to make out any real clear features. One thing was certain regardless of the light. He commanded respect. 
 
-As I neared the chair was pulled out for me and I sat down. Well, I was more or less used down but in order to keep control in my own mind I sat down. I looked up and locked eyes with the man for a brief moment. Surrounding the man in the middle were two incredibly beautiful women. One was a red head and another a blonde. I’d seen two red heads today which I don’t think I’ve seen in all my days of life. It must’ve been a sign. My mind drifted for a moment and then returned to the women. They were situated in such a way that made them look not like mistresses or love interests but fashion accessories. Both wearing tight red dresses showing their beautiful figures. For the span of a heartbeat I wanted so badly to live the life that this man lived. To have beautiful woman surrounding me. To have men say ‘sir’ or ‘no sir’ to me. Have the doors open for me. To have my own restaurant. To have that freshly baked bread whenever I wanted. A man can dream can’t he?
+As I neared the chair was pulled out for me and I sat down. Well, I was more or less pushed down but in order to keep control in my own mind I sat down. I looked up and locked eyes with the man for a brief moment. Surrounding the man in the middle were two incredibly beautiful women. One was a red head and another a blonde. I’d seen two red heads today which I don’t think I’ve seen in all my days of life. Two? In one day? It’s been a weird day for sure. It must’ve been a sign. 
+
+My mind drifted for a moment and then returned to the women. They were situated in such a way that made them look not like mistresses or love interests but fashion accessories. Both wearing tight red dresses showing their beautiful figures. For the span of a heartbeat I wanted so badly to live the life that this man lived. To have beautiful woman surrounding me. To have men say ‘sir’ or ‘no sir’ to me. Have the doors open for me. To have my own restaurant. To have that freshly baked bread whenever I wanted. A man can dream can’t he?
 
 I sat there for a minute just looking around. Looking at my shoes, looking at the ceiling. 
 
@@ -81,7 +83,7 @@ The two men standing on either side of me went to help out their comrades and su
 
 “Heh. Join the club” I said. 
 
-“Franky, let me have my money and I’ll get out of here. Please.”  a now somber McCarthy said. 
+“Franky, let me have my money and I’ll get out of here. Please.” a now somber McCarthy said. 
 
 “My apologies McCarthy” the man said. “There was a slight miscommunication and as you can imagine, my men are not as adept at math as they appear.” 
 
@@ -101,7 +103,7 @@ I turned my head and closed my eyes. “Don’t kill him! Jesus don’t kill him
 
 Still chuckling Franky unfolded his menu and in one quick north and south motion swiped the thick paper menu between McCarthy’s webbing of his fingers. While thankful they didn’t kill him, I’m pretty sure that was probably the worst paper cut I’d ever witnessed and it made me want to throw up. I leaned to my right dry heaving and the room erupted in laughter. McCarthy stood clutching his hand. He didn’t dare respond for fear of additional retribution so he turned and walked towards the door. 
 
-It took a few minutes for everybody to stop laughing but eventually it died down. People were laughing about McCarthy’s response, the look in his eyes when Franky reached into his pocket. Essentially laughing at the play by play. By this time a waitress had come to our table and left a few glasses of water, some breadsticks and a nice tall glass of icy Diet Coke. 
+It took a few minutes for everybody to stop laughing but eventually it died down. People were laughing about McCarthy’s response, the look in his eyes when Franky reached into his pocket. Essentially laughing at the play by play. Me attempting to throw up. By this time a waitress had come to our table and left a few glasses of water, some breadsticks and a nice tall glass of icy Diet Coke. 
 
 I looked at Franky, then to the Diet Coke and then back to Franky. A quick nod to me I picked up the glass and began to drink. I didn’t realize it but I was getting my headache. The one I get when I get grumpy and don’t have my caffeine for the day. The bread. The soda. Delicious. I’d eaten as much as I possibly could as if I’d never eaten before. Franky nodded to one of the henchmen and he quickly left the room. A few moments later  a young man with glasses and a doctors coat came to sit where McCarthy had been previously. He was young. Looked as if he’d still been attending college. His nerdy disposition indicated he was a doctor. The stethoscope hanging around his neck seemed to acknowledge this reasoning. Interesting how someone who looks nerdy, wears a white lab coat and a stethoscope around their neck automatically makes you a doctor these days. 
 
@@ -115,17 +117,19 @@ It’s not my intent to harm you or yours, but I do require your assistance”. 
 
 “I need a sample of your blood. Would you be willing?” 
 
-Two hands rested firmly on my shoulder and my hoodies sleeve was rolled up by one of the ladies previously holding McCarthy’s finger. 
+One henchmen removed my handcuffs. Then two additional hands rested firmly on my shoulder and my hoody sleeve was rolled up by one of the ladies previously holding McCarthy’s finger.
 
-“Sure. Why not. Would love to help” I said. Scowling as I began to look down at my arm. The doctor positioning his chair even closer to mine. 
+“Sure. Why not. Would love to willingly help” I said. Scowling as I began to look down at my arm as things were being forced on to me. Dare I say, against my will. The doctor positioning his chair even closer to mine. A huge smile running across his face like he’d found his parents secret stash of Christmas Gifts pre-wrapping. 
 
 Franky waved his hand in a dismissive wave and all of his henchmen left. The lady on my arm stood up and began to walk away while the lady on his arm stayed. The young doctor had set his blood sampling vials down on the table along with an alcohol swab, tourniquet and a few needles. Franky cleared his throat making the doctor look at him and the doctor stopped dead in his tracks resting the needle he had next to the other vials. Loud screeching of the young man’s chair echo’d in the now silent room as he began to move his chair away from mine.
 
-“I need your cooperation Alex. Willingly. If what my associates say is true, then I do not wish to be on your bad side, and also, if we can have a working relationship, we both can become rich beyond our wildest dreams. I will do what I must to protect my own interests. Do you understand?” Franky said in an emotionless tone. I couldn’t figure out why, but I felt like he was telling me the truth. If this was just a misunderstanding which it surely was then they’d draw blood, and I’d be able to put this day behind me. 
+“I need your cooperation Alex. Willingly. If what my associates say is true, then I do not wish to be on your foe, and also, if we can have a working relationship, we both can become rich beyond our wildest dreams. Having said that, I will do what I must to protect my own interests. Do you understand?” Franky said in an emotionless tone. I couldn’t figure out why, but I felt like he was telling me the truth. If this was just a misunderstanding which it surely was then they’d draw blood, and I’d be able to put this day behind me. 
 
-“It need not be like this. I can help you. You can help me. All I wish for is a sample of your blood to see if what my associates say is true. If the results are positive we will have a quick conversation and I let you go. If the results are negative we will have a quick conversation and I let you go. 
+“It need not be like this. I can help you. You can help me. All I wish for is a sample of your blood to see if what my associates say is true. If the results are positive we will have a quick conversation and I let you go. If the results are negative we will have a quick conversation and I let you go.”
 
-So what do you say? We harmlessly draw a small bit of blood, have a quick conversation and you go?” A grin coming across Franky’s face. 
+He spread his hands palms up and outwards, as if displaying options on the table. 
+
+“So what do you say? We harmlessly draw a small bit of blood, have a quick conversation and you go?” A grin coming across Franky’s face. 
 
 The red headed woman stared at me licking her lips. Franky sitting across from me. The doctor only a few feet away from me. My temper started to flare but this was the absolute worst time for it. My original thought of just letting him take my blood quickly diminished. Then it quickly came back to me, the thoughts of getting home. Alive. In one piece. It had been a long day. 
 
@@ -149,21 +153,42 @@ I shrugged.
 
 “I don’t recall ordering a brick through your windshield.” Franky said seemingly surprised. The reaction to my question seemed to throw him off and based on his response I could tell he didn’t. 
 
-“But getting back to your reluctance. If this test comes back negative then I have simply have no need for you. As you would say, ‘Live and let Live’”.
+“The news of who and what you are as recently come to light. Within the past few days. I put a price on your head, alive of course, as I felt the sooner I could talk to you, the better. 
+
+But getting back to your reluctance. If this test comes back negative then I have simply have no need for you. As you would say, ‘Live and let Live’”.
 
 A cold shiver went down my spine. 
 
-“If your blood does pass this test, then again, if we work together it’ll make us both rich! I can’t simply leave you in a room because in time you will grow too powerful. You have all the leverage here Alex.
+“If your blood does pass this test, then again, we work together it’ll make us both rich. I have many different business partners with whom we can save many innocent lives, all the while making everybody involved incredibly wealthy. 
+I can’t simply leave you in a room because in time you will grow too powerful. I need you, if the results are positive, and you need me. 
 
-My associates seem to believe you’re not just an average Joe. So much so that they are willing to test my resolve and my power. Plotting against me on my own turf.” Franky seemed angry just thinking about it. Not towards me I thought, but just thinking about an associate or a friend betraying his trust seemed to really get to him. 
+My associates seem to believe you’re not just a nobody like many of the other associates in my circle believe. The ones however that believe something is special about you are, how do we say, fanatical about you. You just don’t know it yet. 
+
+So much so that they are willing to test my resolve and my power. Plotting against me on my own turf.” Franky seemed angry just thinking about it. Not towards me I thought, but just thinking about an associate or a friend betraying his trust seemed to really get to him. 
 
 “So please. Can we begin?”
 
-“What is so special about my blood?” I asked. “Why is it everybody wants it? What do you mean I’ll get too powerful?”. 
+“What is so special about my blood?” I asked. “What is it that everybody wants? What do you mean I’ll get too powerful?”. 
 
 Franky looked at me directly in my eyes and responded. 
 
-“If the rumors are true, you were given something as a child unbeknownst to you to defeat it. If the rumors were true, you were on the brink of death and whatever you were given not only saved you, it’s continuing to protect you. Much more than that I don’t know Alex. I’d like to have the good doctor see if he can find anything abnormal about your blood. Once we do that, we can identify if there is anything in fact different about you.” 
+“If the rumors are true, you were given something as a child unbeknownst to you to defeat your cancer.
+
+You did have cancer right?” 
+
+I nodded.
+
+A maniacal smile came over Franky. As if a checkbox had been checked. 
+ 
+“In New Mexico about 20 years ago?” 
+
+I nodded.
+
+Another box was checked. 
+ 
+“If the rumors are to be true, you were on the brink of death and whatever you were given not only saved you, but is continuing to protect you. Much more than that we’ll save for later but just know, you can help save many many lives. 
+
+I’d like to have the good doctor see if he can find anything abnormal about your blood. Once we do that, we can identify if there is anything in fact different about you.” as Franky spoke, his hands now steepled together near his mouth.  
 
 “This doesn’t smell right.” I said. “This sounds like a setup and you’re making it sound like we’re buddies, and yet you had me kidnapped from my own home by a police officer just to get to me.”
 
@@ -181,13 +206,16 @@ I extended my elbow to the Doc.
 
 “Lets just get this over with.” I said. 
 
-The doctor came close, washed my arm with alcohol and put on a tourniquet. The needle went in painlessly much like they always do. It’s amazing how badly you think it’ll hurt only to realize you didn’t even feel it. Looking at it just makes things worst. Blood began to spill into the vials. One. Then two. Then three full vials of my blood. 
+The doctor came close, flipped on a bright light above the table and washed my arm with alcohol. Snapping on the tourniquet he was all but ready. The needle went in painlessly much like they always do. It’s amazing how badly you think it’ll hurt only to realize you didn’t even feel it. Looking at it just makes things worst. Blood began to spill into the vials. One. Then two. Then three full vials of my blood. 
 
-The doctor removed a rack from his coat and placed each vial in it’s holder. He then took out a few patches of paper and dipped each in their own vial. We waited. 
+The doctor removed a rack from his coat and placed each vial in it’s holder. He then took out a few patches of paper and dipped each in their own vial. 
 
-Franky was playing with the red haired beauty on his arm. She was feeding him grapes and had I not been so intently focused on the vials of my blood and the pieces of papers hanging from them I would’ve tried to dry heave again. 
+We waited. And we waited some more.
 
-Love. I know it when I see it and that was true love. Now that the light was on, I could see Franky and all of his features. He had a long strong jawline. Sure, he was short but you could tell it didn’t impact his confidence. He wasn’t strong or well built but you could tell he was lean. If the two were walking down the street together, there’d be no reaction or scoffs about leagues. They were in each other’s league and there was a passion there that radiated as strong as strong as the sun shown. 
+Franky was playing with the red haired beauty on his arm. She was feeding him grapes and had I not been so intently focused on the vials of my blood, the brick through my windshield and the pieces of papers hanging from them I would’ve tried to dry heave again. I’m not sure if it’s seeing people happy that makes me sick to my stomach, or seeing two people in love. Perhaps it’s because it’s so cheesy or perhaps I’m just jealous. Jury is still out on that one.
+
+Love. I know it when I see it, except I hadn’t seen it with these two. Perhaps it was the lighting. Yeah, probably due to the lighting. This was true love. There was just some way they looked at each other. Now that the light was on, I could see Franky and all of his features. 
+He had a long strong jawline. Sure, he was short but you could tell it didn’t impact his confidence. He wasn’t strong or well built but you could tell he was lean. If the two were walking down the street together, there’d be no reaction or scoffs about leagues. They were in each other’s league and there was a passion there that radiated as strong as strong as the sun shown. You could just feel it. 
 
 I smiled, probably staring too long, and Franky looked to me. 
 
@@ -195,7 +223,7 @@ I smiled, probably staring too long, and Franky looked to me.
 
 “Nothing. I mean. Reminds me of my grandparents. You don’t see that too often. 
 
-Besides. I’ve only known you for 5 minutes and you have everything I want. Rich. Successful although I don’t even want to know how, you have clearly attracted a beautiful women and the respect your men shows you is something you only see in the movies.” I responded. 
+Besides. I’ve only known you for 5 minutes and you have everything I want. Rich. Successful. The caveat being I don’t even want to know how, you have clearly attracted a beautiful women and the respect your goons show you is something you only see in the movies.” I responded. 
 
 “And I’m sympathizing with a guy who might have done bad things to get there” I mumbled under my breathe. 
 
@@ -211,11 +239,11 @@ A smile came across Franky’s face as he raised his glass of water as if to toa
 
 He reached into his pocket and pulled out a large sum of cash. Easily three times the size of Ben Franklins that were previously shown to McCarthy and threw it to my side of the table in front of me. He also flicked a business card my way and I caught it midair.  
 
-“That is just the start of it Alex. By the time you get home I’ll have a security system installed in your house with 24 hour surveillance. I’ll have my guys at the local PD circle your neighborhood in greater frequency to look out for trouble. I’ll be sure to keep my associates close to me, or at least have one eye on them at all times.
+“That is just the start of it Alex. You’re in the system now that we’ve located you. By the time you get home I’ll have a security system installed in your house with 24 hour surveillance. I’ll have my guys at the local PD circle your neighborhood in greater frequency to look out for trouble. I’ll be sure to keep my associates close to me, or at least have one eye on them at all times.
 
-We’ll need time to understand just exactly what we are dealing with here” as Franky nodded to my arm where a little bit of blood had dribbled out “but we have everything we need until then. Eat. Drink. Be Merry.” as he looked at the money he sent my way. “I’ll be in touch. If there are any troubles, that’s my direct number. Call me.”. 
+We’ll need time to understand just exactly what we are dealing with here” as Franky nodded to my arm where a little bit of blood had dribbled out “but we have everything we need until then. Eat. Drink. Be Merry.” as he looked at the money he sent my way. “I’ll be in touch. If there are any troubles, that’s my direct number. Call me.” 
 
-I looked down at the money. It was a large sum of money and it really could give me quite a bit of piece of mind. I was already imagining what I’d do with it. I could still smell the bread in the air so I imagined buying a room full of bread and rolling around in it. Perhaps I’d turn in the money to my bank for quarters like Scrooge McDuck and his gold coins. I could dive into it as my morning ritual right before showering. Debt. I could pay off some debt of mine. I mean, I make good money but I was staring at easily 20 thousand dollars. 
+I looked down at the money. It was a large sum of money and it really could give me quite a bit of piece of mind. I was already imagining what I’d do with it. I could still smell the bread in the air so I imagined buying a room full of bread and rolling around in it. Perhaps I’d exchange the cash for quarters at my bank  like Scrooge McDuck and his gold coins. I could dive into it as my morning ritual right before showering. Debt. I could pay off some debt of mine. I mean, I make good money but I was staring at easily 20 thousand dollars. 
 
 My eyes gleamed. Today had been such a roller coaster. One minute there was a brick through my windshield. Next I was being kidnapped and then finally I’m staring at a large stack of cash that was mine. That was just the beginning. I reached down towards the money and as soon as I touched it a wave of emotion came over me. 
 
@@ -233,17 +261,19 @@ Wrapping my hands around the cash felt great. I had to feel it between my hands.
 
 I turned around and started to leave for the door. After a few steps abruptly turned around and headed back towards the stack of cash.
 
-I slipped a hundred dollar bill from one of the stacks and said “I need cab to get home.” 
+I slipped a hundred dollar bill from one of the stacks and said “I need a cab to get home.” 
 
 “Ahh.” Franky said. 
 
 Again, I walked towards the door and then abruptly turned around and headed again to the stack of cash. I quickly snuck a few extra bills out of the stack. Raising the money to Franky he looked back at me with one eyebrow raised. 
 
-“My windshield. You say you didn’t throw a brick through it, but hey, someone has to pay for it. Might as well be the richest man in the room.”. I pointed towards him and he pointed back. “Ok, I’m leaving. For real this time.”
+“My windshield. You say you didn’t throw a brick through it, but hey, someone has to pay for it. Might as well be the richest man in the room.”. I pointed towards him mockingly and he pointed back reciprocating the mocking gesture.
+
+“Ok, I’m leaving. For real this time.”
 
 I walked quickly for the exit. The dim light in the room making it hard to navigate but like a mouse experiencing freedom in a lab for the first time, I was destined to find the door and to get out of dodge. 
 
-I stood on the sidewalk. Guards looking at me as if nothing had happened. The caravan still parked outside. The sun beaming on my face. Standing there and taking it all in. What a day. Thankful to be alive I wanted to stop and breathe. To smell the roses. To feel the sun on my face and it felt good. I shoved the money in my short pockets patted myself down in hopes of locating my phone. My front hoodie pouch felt heavy and I patted it too. I felt the rectangular object in my hoodie pocket and rummaged around in the hopes to getting an Uber ride home. 
+I stood on the sidewalk. Guards looking at me as if nothing had happened. The caravan still parked outside. The sun beaming on my face. Standing there and taking it all in. What a day. Thankful to be alive I wanted to stop and breathe. To smell the roses. To feel the sun on my face and boy, it felt good. I shoved the money in my short pockets patted myself down in hopes of locating my phone. My front hoodie pouch felt heavy and I patted it too. I felt the rectangular object in my hoodie pocket and rummaged around in the hopes to getting an Uber ride home. 
 
 My phone appeared. Along with the money that was wrapped around the brick from earlier this morning. I smiled. I suppose I double dipped on my windshield. “Oh well” I thought to myself. “That just means I’ll buy something nice for myself later on. Perhaps that loaf of bread I’ve been thinking about for the past hour. 
 
