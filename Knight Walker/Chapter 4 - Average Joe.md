@@ -5,7 +5,7 @@ The phone hung up and McCarthy threw it to his passenger seat. He was quiet as i
 
 “Just be quiet boy. I don’t want to do this but I can’t say no to the money. I just can’t.”  McCarthy said with a wavering voice. 
 
-I contemplating screaming and kicking at everything in sight. I really did but I really couldn’t. I had to hope that McCarthy was taking me to the police station and I knew if I released my rage like I wanted to that I would only get myself into more trouble. Besides, my heart was beating so hard that I didn’t think it could keep up with it’s frenetic pace. I had to try and relax. Try to think. 
+I thought about screaming and kicking at everything in sight. I really did but I really couldn’t. I had to hope that McCarthy was taking me to the police station and I knew if I released my rage like I wanted to that I would only get myself into more trouble. Besides, my heart was beating so hard that I didn’t think it could keep up with it’s frenetic pace. I had to try and relax. Try to think. 
 
 “But Why?” I sobbed. Desperation now clearly visible on my face and audible in my voice. 
 
