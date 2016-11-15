@@ -183,7 +183,7 @@ There was an incapacitated man on my floor. A very large incapacitated man on th
 
 A moment later the whole world went silent for me. As if putting on a pair of noise cancelling head phones. Every sense of mine was incredibly heightened. I could smell the sweat from Mario as he laid motionless on the floor. I could see every pore on his face as if I were looking at him through a microscope. Every hair on my body registered feedback to my brain individually as breathe slowly washed across the surface of my skin. 
 
-The hair on the back of my neck stood on end and my skin suddenly preceded goosebumps. 
+The hair on the back of my neck stood on end and my skin suddenly produced goosebumps. 
 
 “Yup. Yup. He just left. Ran out the front door”. I heard an older woman saying.
 
