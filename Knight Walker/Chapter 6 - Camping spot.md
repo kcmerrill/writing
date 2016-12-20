@@ -17,11 +17,11 @@ Mario still laid on the ground motionless except for a few twitches here and the
 
 I had a few options though. I could lie to Mario and come up with some story as to how he had a needle sticking from his neck and how Fanz went to chase down the culprit. I could grab my bug out bag and just leave. Get away for a few days and just leave him there. I could do both even. 
 
-As the options raced through my mind I decided. I’ll come up with a story when Mario comes back to consciousness, clear up the mess that Fanz had made so his cover wasn’t blown and then grab my gear and just head for the mountains. I know a quiet spot and my bug out bag has enough gear in it for at least a few days. Ultimately I felt the quiet would do me some good. Getting away and scrutinizing everything over the past day would do some some good. Being away from everything and everyone that was trying to do harm to me would do me some good.
+As the options raced through my mind I decided. I’ll come up with a story when Mario comes back to consciousness, clear up the mess that Fanz had made so his cover wasn’t blown and then grab my gear and just head for the mountains. I know a quiet spot and my bug out bag has enough gear in it for at least a few days. Ultimately I felt the quiet would do me some good. Getting away and scrutinizing everything over the past day would do some some good. Being away from everything and everyone that was trying to do harm to me would do me some good. Everything in the world would do me some good compared to my current predicament. 
 
 I collected my gear. Sleeping bag, food, stove, tent and water. All where I last left it in case of an emergency. I tossed my pack in the back of the jeep and using a tire iron removed and vacuumed the rest of the glass from my broken windshield. 
 
-Hoping to cause a commotion, a very loud commotion, I bolted my deadbolt and using an axe I had on my patio for my fire pit used it to rip open my door as if to break it down, and when I felt it was soft enough to drive my foot through it kicked through it. 
+Hoping to cause a commotion, a very loud commotion, I bolted my deadbolt and using an axe I had on my patio for my fire pit used it to rip open my door as if to break it down, and when I felt it was soft enough to drive my foot through it, I took a deep breathe and knocked down the door. With a loud thud it fell to the floor. 
 
 Mario stirred and then finally sat up. 
 
@@ -33,11 +33,11 @@ Throwing my hands in the air and in a calm voice I said “Easy Mario … Easy. 
 
 In a groggy voice he said “You have 30 seconds.”
 
-“Franky’s been kidnapped. Someone dressed in military fatigues came through the front door forcefully.” I said as Mario turned to look towards the busted up door. “Whoever it was saw me, then you and Fanz, must have panicked and then shot.” I said, using my eyes to point to the syringe now laying on the floor. “Given it’s my house it was probably meant for me. Fanz seemed to think it was a sedative used to help get me in the getaway car without too much trouble.”
+“Franky’s been kidnapped. Someone dressed in military fatigues came through the front door forcefully.” I lied as Mario turned to look towards the busted up door. “Whoever it was saw me, then you and Fanz, must have panicked and then shot.” I said, using my eyes to point to the syringe now laying on the floor and busted bits of my door everywhere. “Given it’s my house it was probably meant for me. Fanz seemed to think it was a sedative used to help get me in the getaway car without too much trouble.”
 
 Mario lowered his gun only slightly. “So where is Fanz?”
 
-I exhaled slowly. It seemed that Mario was believing my story. The realization of it working I immediately continued on.
+I exhaled slowly. It seemed that Mario was buying my story. The realization of it working I immediately continued on.
 
 “Fanz took the car and followed them out of the complex. I don’t know where they went but Fanz said to get back and alert the others.”
 
@@ -45,7 +45,7 @@ Mario lowered his weapon and slowly wobbled to his feet. Clearly groggy and suff
 
 “I’ll take you back to Little Italy’s or wherever you need to get to.” I said as I helped him inside.
 
-He didn’t say anything. Clearly still suffering from whatever it was Fanz shot at him but it was clearly working. He was easily persuaded and I’m sure if I asked him to walk off a cliff he would’ve. I didn’t want to push it though. I just wanted to drop him off and get out of dodge. 
+He didn’t say anything. Clearly still suffering from whatever it was Fanz shot at him but it was clearly working. He seemed so easily persuaded that I’m sure if I asked him to walk off a cliff he would’ve. I didn’t want to push it though. I just wanted to drop him off and get out of dodge. 
 
 Ten or so minutes passed and we were nearing Little Italy’s. We stopped at a intersection and Mario mumbled under his breathe. 
 
@@ -57,11 +57,11 @@ Ten or so minutes passed and we were nearing Little Italy’s. We stopped at a i
 
 A moment later in my rear view mirror I saw Mario walking. Headed towards the restaurant. I didn’t know where or what he was going to do but at this point I didn’t care. I was cleared of the next hurdle and I needed to get going before the sunlight was gone for the night. 
 
-It’s only an hour and a half from my house to my favorite camping spot trailhead. It’s in the middle of nowhere on the Colorado Trail and the awesome thing is, depending on your mood, energy levels and amount of people in the area you can setup your camping spot within 10 minutes, or hike in a few hundred miles to avoid people. 
+It’s only an hour and a half from my house to my favorite camping spot's trailhead. It’s in the middle of nowhere on the Colorado Trail and the awesome thing is, depending on your mood, energy levels and amount of people in the area you can setup your camping spot within 10 minutes, or hike in a few hundred miles to avoid people. Literally a few hundred miles. 
 
 Getting away from people was my main objective so I hiked for a few hours to my favorite spot. It’s secluded with no people usually, even on the busiest of holidays, with a river flowing through the campsite. This was important to me as I didn’t really know how long I’d be out there and water was important. 
 
-It was chilly but not cold as I pulled on light jacket. The sun was setting but it wasn’t completely dark out. Most people would  have felt a bit uncomfortable in this situation but I’ve done this a thousand times. Literally. Over the years I’ve camped in numerous sites but for some reason I’ve always gravitated to this one. 
+It was chilly but not cold as I pulled on light jacket. The sun was setting but it wasn’t completely dark out. Most people would  have felt a bit uncomfortable in this situation but I’ve done this a thousand times. Perhaps not a thousand times, but hundreds of times easily. Over the years I’ve camped in numerous sites but for some reason I’ve always gravitated to this one. 
 
 For no particular reason aside from the checkboxes that this particular spot checked. It was a few miles on the trail so it was a great workout. It had a river going through it that provided water and wild game in case things got hairy, it was completely secluded by trees and off the beaten path and it had a ton of firewood in case the nights got too cold which they often did. For 15 years I’ve come to the same spot and overtime I’d try going somewhere else something in side of me persuaded me not to. Perhaps it was my lack of courage to try new adventures, or perhaps it was just a little voice inside of me begging me to change my mind. 
 
