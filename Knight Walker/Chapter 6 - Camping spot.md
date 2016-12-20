@@ -193,4 +193,8 @@ My hands were handcuffed with what looked like a low green radiant light peice o
 
 I awoke to hear two men talking. 
 
-“How much blood did you take from Alex?”
+"How much?" said the first man.
+
+"How much what?" responded the second.
+
+“How much blood did you take from Alex?"
