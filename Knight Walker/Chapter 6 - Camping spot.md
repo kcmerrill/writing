@@ -69,7 +69,7 @@ Either way, this wasn’t my first trip here and I was hopeful that it wouldn’
 
 I setup shop just as the sun set. 
 
-“In the nick of time” I said aloud to no one but myself. I was in the middle of nowhere. Nobody knew who I was out here, and luckily I hadn’t seen anybody on my 2 hour long hike in. It was just me and the boonies and I was looking forward to food and sleep. Most definitely sleep. 
+“In the nick of time” I said aloud to no one but myself. I was in the middle of nowhere. Nobody would know I was out here, and luckily I hadn’t seen anybody on my 2 hour long hike in. It was just me and the boonies and I was looking forward to food and sleep. Most definitely sleep. 
 
 I had a nice little fire going with a few cups of water boiling for my meal. 
 
@@ -87,7 +87,7 @@ I slowly climbed into my sleeping bag and bivy. I jokingly call it the bear burr
 
 I once went camping, one of my first few times out many years ago, when something was crawling through my campsite. I only knew it was crawling through my campsite because I heard the rustling through the trees and then eventually heard the sounds of claws scraping across the hood of my jeep. A slight terror came across me and I quickly went through all of the training and preparation that came to mind mind when it happened. 
 
-I screamed. Loudly and in the highest pitches possible. In pure fear I reached for my jeep keys and did the only thing I could think of at the time and hit the panic button. The problem with hitting the panic button, while the critter quickly left the campsite, was where I was parked. Atop a vertex of a mountain and the alarm of the jeep echo’d throughout the valley for miles on end. It was embarrassing to say the least but at least I wasn’t eaten alive in my bear burrito. To be fair, it could’ve been a raccoon. Then again, it could’ve been a bear. I suppose I’ll never know, but for the sake of telling a manly story I’d like to think it was a bear. A big ferocious man eating grizzly bear. 
+I screamed. Loudly and in the highest pitches possible. In pure fear I reached for my car keys and did the only thing I could think of at the time and hit the panic button. The problem with hitting the panic button, while the critter quickly left the campsite, was where I was parked. Atop a vertex of a mountain and the alarm of the jeep echo’d throughout the valley for miles on end. It was embarrassing to say the least but at least I wasn’t eaten alive in my bear burrito. To be fair, it could’ve been a raccoon. Then again, it could’ve been a bear. I suppose I’ll never know, but for the sake of telling a manly story I’d like to think it was a bear. A big ferocious man eating grizzly bear. 
 
 I closed the zipper to my sleeping bag as the mummy style sleeping bag warmly wrapped around my face. 
 
@@ -101,7 +101,7 @@ I awoke not to bright sunlight but to the chill of the night air. It was pitch b
 
 Reaching for my head I felt my beanie as I had left it, and fixed to it was my headlamp that I quickly clicked on. Bright light instantly filled the area nearest to me and I looked around and with a gasp of realization I saw I was nowhere near where I had opened my eyes. I closed my eyes, drew in a deep breathe and relaxed. 
 
-This wasn’t the first this has ever happened to me. Be it at home or camping. I always wake up in random places, and I’ve always found my way home. I just needed to relax and assess my situation. Looking around, my line shining on everything I quickly noticed that while I hadn’t been nice and comfy in my sleeping bag, this area was not all that unfamiliar to me. I’ve awoken here on countless nights camping and was able to quickly identify some of the trees and rocks.
+This wasn’t the first this has ever happened to me. Be it at home or camping. I always wake up in random places, and I’ve always found my way home. I just needed to relax and assess my situation. Looking around, my light shining on everything I quickly noticed that while I hadn’t been nice and comfy in my sleeping bag, this area was not all that unfamiliar to me. I’ve awoken here on countless nights camping and was able to quickly identify some of the trees and rocks.
 
 I climbed to my feet, known that my sleeping bag and equipment were right over the hill to my south. I just had to take a quick 5 minute hike to get there. Then I’d go to sleep and hopefully the next time I would wake up it would be warmer with the rays of sunshine beating on my face inviting me to sleep in just a little longer. 
 
@@ -123,13 +123,13 @@ I was still half asleep, so I grabbed the waterproof bag and notebook and return
 
 As I stumbled in the direction of my warm sleeping bag, and the thoughts of snuggling in for the night crept over my mind I heard a clicking noise behind me. 
 
-I was awake now. I wasn’t imagining anything either. There as a noise coming from behind the tree. Half of me wanted to run as fast as I could and pretend I didn’t hear anything. Another part of me felt curious and wanted to investigate. Against my better judgement I opted to investigate. 
+I was awake now. I wasn’t imagining anything either. There was a noise coming from behind the tree. Half of me wanted to run as fast as I could and pretend I didn’t hear anything. Another part of me felt curious and wanted to investigate. Against my better judgement I opted to investigate. 
 
-My headlamp lit my path as I walked towards the clicking noise. Pushing aside the brush I entered a large clearing with a large flat rock on the ground. In the center was an object only a foot or so tall. It was mechanical with a tripod holding it up into place. There were 3 pieces of what looked like metal in the shape of a leaf rotating around a cylinder that was emitting a low glow of light. 
+My headlamp lit my path as I walked towards the clicking noise. Pushing aside the brush I entered a large clearing with a large flat rock on the ground. In the center was an object only a foot or so tall. It was mechanical with a tripod holding it up into place. There were 3 pieces of what looked like metal in the shape of a leaf rotating around a cylinder that was emitting a glow of soft white light. 
 
 As I walked closer to it, the light of the cylinder increased and as it came into view I realized it looked like a large … crystal. The object looked very rudimentary made up of pots, pans, silverware, cooking tongs, steel cleaning brushes etc … 
 
-The leafs rotating around the crystal made it inadvisable to get too close, but I got close enough to identify the utensils. While none of them had my name on them, I immediately recognized everything on the object as having belonged to me at one point or another over the past ten or so years. All things that went missing in my house that I chalked up to accidentally throwing away when I was doing whatever it was when I was asleep.
+The metal "leaves" rotating around the crystal made it inadvisable to get too close, but I got close enough to identify the utensils. While none of them had my name on them, I immediately recognized everything on the object as having belonged to me at one point or another over the past ten or so years. All things that went missing in my house that I chalked up to accidentally throwing away when I was doing whatever it was when I was asleep.
 
 “What … what is this?”
 
@@ -139,45 +139,45 @@ I gasped. I had no explanation for it. Was I doing this in my sleep? Was I stash
 
 “I don’t understand”…
 
-Just then the loudest bang I’d ever heard came across the night sky. I looked up to see a flash of white light and saw what appeared to be a meteorite coming down. Of course, given my condition and the day it was having it was only fitting that it was coming straight for me. I lifted my arm to shield my eyes and a feeble attempt at protecting myself and feel to my knees. 
+Without warning or cuase, the loudest bang I’d ever heard came across the night sky. I looked up to see a flash of white light and saw what appeared to be a meteorite coming down. Of course, given my condition and the day it was having it was only fitting that it was coming straight for me. I lifted my arm to shield my eyes as a feeble attempt at protecting myself and fall to my knees. 
 
-A moment later there was another loud bang and the complete silence. 
+A moment later there was another loud bang and then complete silence. 
 
 The sky was black again. The only light coming from the moon and my headlamp. Looking around, the soft glow of the crystal that was once a dim white light now was a steady blue.
 
 Under the illumination of the crystal I noticed something else familiar too. I reached over to grab it and the crystal turned red. 
 
-“Ok … ok … easy … easy.” I said aloud as if talking to another being. 
+“Ok … ok … easy … easy.” I said aloud as if talking to another being.
 
-I noticed though my very first smartphone was attached. The screen was completely cracked as I last remembered it being. I sat on it once and had to throw it away because it was completely useless to me at the time. Yet, here it was, attached to an object I had no idea how was built, with items that I thought I had lost long ago. 
+I took a second glance at the weird object before me. I noticed, what appeared to be, my very first smartphone attached attached at the base of the crystal. The screen was completely cracked as I last remembered it being. I sat on it once and had to throw it away because it was completely useless to me at the time. Yet, here it was, attached to this ... thing. I had no idea how or when it was built, with items that I thought I had lost long ago. 
 
-My head throbbed again as the blood went rushing through my head. My heart was beating a million miles a minute as I heard a rumbling off in the distance. I couldn’t quite place the sound but I’ve heard it before at the airport. Or perhaps the air force base. A jet? A helicopter? A moment later I heard an ear piercing sound as I saw a rabbit snap a twig only a few feet away from me. 
+My head throbbed again as the blood went rushing through my head. My heart was beating a million miles a minute as I heard a rumbling off in the distance. I couldn’t quite place the sound but I’ve heard it before at the airport. Or perhaps the air force base. Was it a jet? An offroad vehicle? A moment later I heard an ear piercing sound as I saw a rabbit snap a twig only a few feet away from me. 
 
 “Ugh. Not this again … not now.”
 
-My vision, my smell, my hearing. All intensified. I could hear the birds screaming in the trees. I could hear twigs snapping off in the distance as wild animals moved throughout the forest. Even ants walking across the earth seemed to be incredibly loud and painful as my mind was confused with how to handle the sensory overload I was experiencing. 
+My vision, my smell, my hearing all intensified. I could hear the birds screaming in the trees. I could hear twigs snapping off in the distance as wild animals moved throughout the forest. Even ants walking across the earth seemed to be incredibly loud and painful as my mind was confused with how to handle the sensory overload I was experiencing. 
 
 The stars came into focus and as I looked to the night sky I saw a commercial flight overhead. Usually it’s just a blinking light, but now I could visibly see the lights in the front of the aircraft, the tail and the wings. As if it were flying only a few feet away from me. 
 
 I dropped to my knees. This was too much too soon. I had come out here hoping pick apart what was happening in my life. Not to add more confusion to it. 
 
-Sobbing I struggled to regain my emotions and my breathe as now I was hyperventilating. 
+Sobbing I struggled to regain my emotions and my breathe but it was too much. I was hyperventilating. 
 
-As I lay on all fours on the ground, breathing hard, tears running from my eyes I felt a light pressure on my back. As if a hand were gently placed on my spine. It went quiet and my thoughts slowly straightened themselves out. The pounding in my head stopped, my sense of smell, my hearing, my vision all of it subdued and went back to normal. The light from my headlamp went out, the glow of the crystal turned off. As if a candle in the wind, everything just stopped. 
+As I lay on all fours on the ground, breathing hard, tears running from my eyes I felt a light pressure on my back. As if a hand were gently placed on my spine. It went quiet and my thoughts slowly straightened themselves out. The pounding in my head stopped, my sense of smell, my hearing, my vision all of it subdued and went back to normal. The light from my headlamp went out, the glow of the crystal turned off. As if a candle in the wind, everything just stopped. All seemed calm and quiet in the world. I felt at peace.
 
-Collapsing to the ground, I rolled over on my back to see the person who had approached. Except it wasn’t a person. The outline of the object looked like a human except it clearly wasn’t. I could make out large black eyes and exceptionally large arms but it wasn’t a scary figure. It was a calming reassuring figure. 
+Collapsing to the ground, I rolled over on my back to see the who or what had approached. With a look of horror I quickly realized it wasn’t a person. At least not a human. The outline of the object looked like a human except it clearly wasn’t. I could make out large black eyes and exceptionally large arms. Something you'd see in a terrible 70's movie. Except this was different, I wasn't panic'd, in fact it was a calming reassuring figure. 
 
-Its hand rested now on my chest, it’s calming presence soothed every aching thought in my mind. 
+Its hand now rested on my chest, it’s calming presence soothed every aching thought in my mind and my senses all came to a quiet peaceful state.
 
-“Be still”. A voice coming across not through my ears but through my mind. “Just be still”.
+“Be still”. A voice said. Not through my ears but through my mind. “Just be still brother”.
 
 I squinted trying to get a better mental image of just what I was looking at. It was so hard to think or to see for that matter but I tried. It wasn’t anything I’d ever seen before, but I didn’t see enough to make a complete mental image. 
 
-By the time I started to piece together everything the loud sound of engines came above the tree canopy. Bright lights shining on me and the being that was with me was gone. Completely gone. Replaced with a searchlight from 3 apache attack helicopters beamed directly on me. 
+By the time I started to piece together everything that was happening the loud sound of engines came above the tree canopy. Bright lights shining on me and the being that was with me was gone. Completely gone. Replaced with a searchlight from 3 apache attack helicopters beamed directly on me. 
 
-I climbed to my feet shielding my eyes with my hand, as I saw men in military fatigues dropping down from ropes coming at me. Assault rifles drawn and pointed in my direction.
+I climbed to my feet shielding my eyes with my hand, as I saw men in military fatigues repelling down with ropes from the aircraft. All walking towards me with their assault rifles drawn.
 
-One of the helicopters landed and a tall man exited the aircraft. He took a few looks around, reached to his ear, barked some orders and pointed in a few different directions. He was clearly the ring leader. 2 men came and seized the object behind me, another picked up the bag and notebook that had fallen to the floor and handed it to the ring leader. 
+One of the helicopters landed and a tall man exited the aircraft. He took a few looks around, reached to his ear, barked some orders and pointed in a few different directions. He was clearly the ring leader. 2 men came and seized the object behind me, another picked up the bag and notebook that had fallen to the floor and handed it to what appeared to be the boss. 
 
 He walked towards me, thumbing through the notebook. 
 
@@ -189,7 +189,7 @@ Given there were men with assault rifles pointed at me, and given there were 3 a
 
 He nodded to one of the men, and just as quickly the man walked over to my direction. 
 
-My hands were handcuffed with what looked like a low green radiant light. A potato sac was placed over my head and I was led towards the helicopter. I was pushed down into the seat and with a crack of pain and what had to be the butt end of the assault rifle over my temple, I fell unconscious. 
+My hands were handcuffed with what looked like a low green radiant light peice of metal. A potato sac was placed over my head and I was led towards the helicopter. I was pushed down into the seat and with a crack of pain and what had to be the butt end of the assault rifle over my temple, I fell unconscious. 
 
 I awoke to hear two men talking. 
 
