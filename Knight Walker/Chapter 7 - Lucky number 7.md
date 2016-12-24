@@ -201,11 +201,11 @@ The van’s large sliding door swung open as if it were in a bonafide heist and 
 
 “Speak for yourself” I muttered. “I feel like I’ve spent the past 24 hours at a Chukie Cheese as the only adult on duty”.
 
-“That bad huh? Give it some time. You’ll mend.” Fanz smiled and nodded to the van. “Lets go”.
+“That bad huh? Give it some time. You’ll mend.” Fanz smiled and pointed towards the back of the van. “Lets go”.
 
-With that, Kyle threw me into the van and the next moment the facility and it’s screaming sirens were merely a dot in the rear view mirror. 
+With that, Kyle threw me in and the next moment the facility and it’s screaming sirens were merely a dot in the rear view mirror. 
 
-To where I didn’t know, but I’d re-evaluate my situation when we got there. 
+To where we were headed I didn’t know, but I’d re-evaluate my situation when we got there. 
 
 Kyle and Lauren sat in the seats in front of me, her head resting against his shoulder and his hand through her hair. 
 
