@@ -129,21 +129,21 @@ Another gasp came from he corner of the room where Lauren had sat.
 
 “Don’t worry love” Wayne said, “He’s ok. I promise”.
 
-A moment later, I opened my eyes. I felt right as rain. One moment liquid fire pulsated throughout my body, the next I felt as if I had just awoken from a 12 hour slumber. 
+A moment later, I opened my eyes. I felt right as rain. One moment liquid fire pulsated throughout my body, the next I felt as if I had just awoken from a 12 hour nap. 
 
 “Impossible” Muttered Kyle. As he came to my side, opening my eyelids, pulling his stethoscope from his lab coat and listening to my heart. 
 
 Thump. Thump. On and on my heart beat. 
 
-“But … but … how is this possible?” Kyle said in disbelief looking towards Wayne.
+“But … but … how is this possible?” Kyle said in utter disbelief looking towards Wayne.
 
 “All in good time Kyle, all in good time.” Wayne said. “But for now, just know this young man will be our guinea pig until we figure out the missing ingredient. We will find it, with or without his cooperation. He will bleed until he’s at the brink of death, he will recover and then he will bleed out again. Over and over until we find what it is we need Kyle, but make no mistake, he is the key to all of this” Wayne said as he made his way towards the door. 
 
 Every ache in my body, the incision in my arm and just about every ailment I’ve had in the past few weeks was just … it was just gone. 
 
-“How is this possible?” I said in disbelief. 
+“How is this possible?” I too said in disbelief. 
 
-Wayne stopped and turned around. 
+Wayne stopped and turned around. The look on his face made it seem like he'd just won a prize at the fair.
 
 “You are subject number 7 in the research project Genisis we were conducting. Our first human subject, Cassidy, 14 year old Leukemia patient passed away almost immediately. A few iteration and test subjects later led us to a breakthrough. Subject number 3 died only a few weeks after the serum was injected, with every subject’s longevity lasting only a few days more than the previous. But you … you were the last subject in our research and you happen to be the only one left alive all this time later. But why? What is different about you Alex?”
 
