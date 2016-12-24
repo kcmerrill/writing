@@ -195,7 +195,7 @@ The cool breeze hit my skin and the fresh air hit my nostrils and it was as if I
 
 The van’s large sliding door swung open as if it were in a bonafide heist and Fanz appeared. 
 
-“How is he” Fanz asked, looking towards Kyle and then to me. 
+“How is he” Fanz asked, looking towards Kyle and then to me still slung across his shoulder. 
 
 “He’s fine” shaking me as if to show how proud he was of his accomplishment. 
 
