@@ -1,9 +1,6 @@
 # Lucky number 7
 ## Chapter 7
 
-A quick authors note. I may or not be good at tying the chapters together. The idea I had was to write the first few chapters, then explain how we got to chapter 1 through perhaps the second and a half chapter and then continue on. 
-This is me continuing on … enjoy :)
-
 I’m not sure if it was the smell of death or the smell of blood that had brought me back to consciousness but whatever it was it had my attention. I cracked my eyes just a smidge only to see that I had awoken in the lap of the beautiful red haired woman whom I couldn’t quite remember. 
 
 Through the slightest crack of my eyelids I could see her staring down at me with the most the most beautiful blue eyes ever imagined. As it turns out I didn’t fight it as she said before I had been pistol whipped. I closed my eyes in the hopes of returning to my slumber. My head and my body ached and I was ready for whatever to happen happen. With heavy eye lids I slipped back into sleep. 
@@ -20,13 +17,13 @@ I sat up shaking the fogginess that had yet to wear off from being asleep for a 
 
 Looking at her, then to the dead man that was next to her and then back again I asked “Where is Franky? What are we doing here?”
 
-“There isn’t any time to explain it all.” as she looked towards the door. Hearing a few men speaking outside the hallway. “Really quick. The man who kidnapped you is Wayne. He works for the government and leaks sensitive information on the side. The doctor that works for him is Kyle. Wayne bad. Kyle good. Got it?”
+“There isn’t any time to explain it all.” as she looked towards the door. Hearing a few men speaking outside the hallway. “Really quick. The man who kidnapped you is Wayne. He works for the government and is a crook. The doctor that works for him is Kyle. Wayne bad. Kyle good. Got it?”
 
 Confused and looking around I nodded.
 
-“And who is that?” I asked, pointing to the dead man next to him. 
+“And who is that?” I asked, pointing to the dead man next to her. 
 
-“That’s Charles. A friend of Franky’s. They were having dinner, just catching up when the military came in and took Franky. There was a standoff and a bunch of people got hurt. They took us, Wayne brought us here and then you showed up.” she responded. 
+“That’s Charles. A friend of Franky’s. They were having dinner, just catching up when the Wayne and his military goons came in and took Franky. There was a standoff and a bunch of people got hurt. They took us, Wayne brought us here and then you showed up.” she responded. 
 
 “And what’s your name?” I asked. 
 
@@ -34,7 +31,7 @@ Confused and looking around I nodded.
 
 “And …” I started before she cut me off. 
 
-“Listen, Kyle has connections and they are coming for us. Lay low. Buy us whatever time we can until they get here.”
+“Listen, Kyle has connections and they are coming for us. Lay low. Buy us whatever time you can until they get here.”
 
 “Until who gets here?” 
 
@@ -60,7 +57,7 @@ I thumbed through the notebook. Shaking my head I repeated, “I don’t know ma
 
 “Honest. I don’t know. All I know is I went camping. I woke up when I was sleep walking. I saw the notebook and that thing.” I said, as I pointed to the thing in the middle of the room. “Then you showed up. I’m here. I have no clue man. I have no clue what’s going on. That’s the god honest truth.”
 
-“So let me get this straight”, Wayne said, sarcastically. “You have a notebook on it, with all your information in it, with schematic and formulas that exactly match this transmitter. We find you tinkering with it and the best response you can come up with is ‘You were sleep walking’?” The rage clearly consuming Wayne. 
+“So let me get this straight”, Wayne said, sarcastically. “You have a notebook, with all your information in it, with schematic and formulas that exactly match this transmitter. We find you tinkering with it and the best response you can come up with is ‘You were sleep walking’?” The rage clearly consuming Wayne. 
 
 “You had 15 years of building and transmitting and THIS is the best excuse you could come up with?”. Wayne said again, as if to repeat himself in utter disbelief. 
 
