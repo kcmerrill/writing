@@ -1,9 +1,6 @@
 # Lucky number 7
 ## Chapter 7
 
-A quick authors note. I may or not be good at tying the chapters together. The idea I had was to write the first few chapters, then explain how we got to chapter 1 through perhaps the second and a half chapter and then continue on. 
-This is me continuing on … enjoy :)
-
 I’m not sure if it was the smell of death or the smell of blood that had brought me back to consciousness but whatever it was it had my attention. I cracked my eyes just a smidge only to see that I had awoken in the lap of the beautiful red haired woman whom I couldn’t quite remember. 
 
 Through the slightest crack of my eyelids I could see her staring down at me with the most the most beautiful blue eyes ever imagined. As it turns out I didn’t fight it as she said before I had been pistol whipped. I closed my eyes in the hopes of returning to my slumber. My head and my body ached and I was ready for whatever to happen happen. With heavy eye lids I slipped back into sleep. 

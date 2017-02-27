@@ -3,33 +3,33 @@
 
 “How much blood did you take from Alex?” 
 
-The words were fuzzy and almost incoherent as I came to. Ears ringing so loud and violently that even hearing a life altering phrase was near impossible. The low rumbling of the voice were enough to give me shivers had I been in my right mind. I wasn’t though. 
+The words were fuzzy and almost incoherent as I came to. My ears ringing so loud and violently that even hearing a life altering phrase was nearly impossible. The low rumbling of the voice was enough to give me shivers had I been in my right mind. I wasn’t though. 
 
-My body ached like I had just been hit by a train. When I went to open my eyes, my eyelids wouldn’t budge. They may as well have been superglued together they were so dry. I wanted to scream but my lips stuck together, the taste and smell of blood filling my senses and a sharp pain registered on my lower lip. I tried to move my arms and legs but they were bounded together. I had no way of knowing but I had the distinct impression I had been beaten. Badly. A few broken ribs made breathing damn near impossible. I couldn’t actually feel it given my hands being bound but there was a pounding and throbbing as if I had blunt trauma to my head. I went to reposition myself ever so slowly but my right knee cried out in agony and I immediately stopped. My body went limp and I just sat there. I needed a few more seconds to examine my situation and to think of a plan. Even if the plan was just to sit there and die, I needed a plan. 
+My body ached like I had just been hit by a train. When I went to open my eyes, my eyelids wouldn’t budge. They may as well have been superglued together they were so dry. I wanted to scream but my lips stuck together, the taste and smell of blood filling my senses. As if on queue, the pain. I tried to move my arms and legs but they were bound together. I had no way of knowing but I’d bet my next paycheck that I’d been beaten. And Badly. A few broken ribs made breathing damn near impossible. The ringing in my ears and the throbbing coming from the top of my head told me that my skull had been there to soften the blow of a big league sluggers baseball bat. I went to reposition myself ever so slowly but my knee cried out in agony and that of course stopped me in my tracks. My body just went limp and I just sat there. I needed a few more seconds to examine my situation and to think of a plan. Even if the plan was just to sit there and die, I needed a plan. 
 
 “Quite a bit. You know, just in case.” 
 
 This time the words coming from a smaller, weaker voice of a man. One filled with apprehension and nervousness. I couldn’t see the man but I’d imagine if I could he would’ve winced. As if he were explaining to his father why he was sent to the principals office. Arms up in a defensive position not knowing if a verbal or physical lashing would be next.
 
-“I need him to live.”  A deep and low and irritated voice growled. 
+“I need him to live.”  a deep, low irritated voice growled. 
 
 “At least for a few minutes until I find out who gave it to him.  Then after I get what I want from him you can do whatever you’d like to him. Dead or Alive. 
 
-Now get back to your lab and find out whatever you can. Do not come out until you have found it or I will make her wish you had.”.
+Now get back to your lab and find out whatever you can. Don’t come out until you have found it or I will make her wish you had.”.
 
-“Yes … Yes sir … Just … just please don’t hurt her” mumbled the man, now gasping for air as he spoke. The nervousness stealing the air from his lungs. Sound of shuffling shoes jogging off in the distance filled the silent room and then that of a heavy door closing. 
+“Yes … Yes sir … Just … just please don’t hurt her” mumbled the man, now gasping for air as he spoke. The nervousness stealing the air from his lungs. Sounds of shuffling shoes jogging off in the distance filled the silent room and then that of a heavy door closing. 
 
 There was a moment of silence and then there was the sound of a dead bolt locking. 
 
 More silence.
 
-A literal eternity passed. Ok, probably not literally but at the very least a heartbeat passed. I gathered my courage and opened my eyes not sure what I’d see. After a few moments of struggle more confusion and questions came rushing into my mind. 
+A literal eternity passed. Ok, probably not literally but at the very least a couple heartbeats passed. I gathered my courage and opened my eyes not sure what I’d see. After a few moments of struggle more confusion and questions came rushing into my mind. 
 
-Initial darkness. 
+Then there was darkness. Again. Then there was light and more darkness, and more light as I came to and from consciousness.
 
-When my eyes were able to focus and when the world stopped spinning I realized I couldn’t see straight ahead. My view was obstructed and I felt claustrophobic. There was light coming from the bottom of my peripheral vision. I looked down and visually confirmed what I had previously felt. My hands were bounded together by rope and what looked like a set of handcuffs. 
+When my eyes were able to focus and when the world stopped spinning I realized I couldn’t see straight ahead. My view was obstructed and I felt claustrophobic. There was light coming from the bottom of my peripheral vision. I looked down and visually confirmed what I had previously felt. My hands were bound together by rope and what looked like a set of handcuffs. 
 
-These were handcuffs unlike any I’d ever seen before. Not that I had seen many if any. I mean, given my current predicament you’d think I’d have been in all kinds of crazy trouble in the past but I assure you it’s been an incredibly long time since I’ve received even a parking ticket. These handcuffs were different. They pulsed a low green radiant light and there was some sort of inscription on them that I couldn’t make out in the dimness of my limited surroundings.
+These were handcuffs unlike any I’d ever seen before. Not that I had seen many if any. I mean, given my current predicament you’d think I’d have been in all kinds of crazy trouble in the past but I assure you it’s been an incredibly long time since I’ve received even a parking ticket. These handcuffs were different. They pulsed a low green radiant light and there was some sort of inscription on them that I couldn’t make out in the dimness of my surroundings.
 
 Another half of a moment passed and an on/off switch to my sense of smell came to me. The air was cold, damp, and stale. It smelled. It smelled like blood, rich in iron and … and like potatoes? The realization that a potato sac was covering my head finally dawned on me.
 
