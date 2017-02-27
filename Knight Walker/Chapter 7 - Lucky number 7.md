@@ -17,13 +17,13 @@ I sat up shaking the fogginess that had yet to wear off from being asleep for a 
 
 Looking at her, then to the dead man that was next to her and then back again I asked “Where is Franky? What are we doing here?”
 
-“There isn’t any time to explain it all.” as she looked towards the door. Hearing a few men speaking outside the hallway. “Really quick. The man who kidnapped you is Wayne. He works for the government and leaks sensitive information on the side. The doctor that works for him is Kyle. Wayne bad. Kyle good. Got it?”
+“There isn’t any time to explain it all.” as she looked towards the door. Hearing a few men speaking outside the hallway. “Really quick. The man who kidnapped you is Wayne. He works for the government and is a crook. The doctor that works for him is Kyle. Wayne bad. Kyle good. Got it?”
 
 Confused and looking around I nodded.
 
-“And who is that?” I asked, pointing to the dead man next to him. 
+“And who is that?” I asked, pointing to the dead man next to her. 
 
-“That’s Charles. A friend of Franky’s. They were having dinner, just catching up when the military came in and took Franky. There was a standoff and a bunch of people got hurt. They took us, Wayne brought us here and then you showed up.” she responded. 
+“That’s Charles. A friend of Franky’s. They were having dinner, just catching up when the Wayne and his military goons came in and took Franky. There was a standoff and a bunch of people got hurt. They took us, Wayne brought us here and then you showed up.” she responded. 
 
 “And what’s your name?” I asked. 
 
@@ -31,7 +31,7 @@ Confused and looking around I nodded.
 
 “And …” I started before she cut me off. 
 
-“Listen, Kyle has connections and they are coming for us. Lay low. Buy us whatever time we can until they get here.”
+“Listen, Kyle has connections and they are coming for us. Lay low. Buy us whatever time you can until they get here.”
 
 “Until who gets here?” 
 
@@ -57,7 +57,7 @@ I thumbed through the notebook. Shaking my head I repeated, “I don’t know ma
 
 “Honest. I don’t know. All I know is I went camping. I woke up when I was sleep walking. I saw the notebook and that thing.” I said, as I pointed to the thing in the middle of the room. “Then you showed up. I’m here. I have no clue man. I have no clue what’s going on. That’s the god honest truth.”
 
-“So let me get this straight”, Wayne said, sarcastically. “You have a notebook on it, with all your information in it, with schematic and formulas that exactly match this transmitter. We find you tinkering with it and the best response you can come up with is ‘You were sleep walking’?” The rage clearly consuming Wayne. 
+“So let me get this straight”, Wayne said, sarcastically. “You have a notebook, with all your information in it, with schematic and formulas that exactly match this transmitter. We find you tinkering with it and the best response you can come up with is ‘You were sleep walking’?” The rage clearly consuming Wayne. 
 
 “You had 15 years of building and transmitting and THIS is the best excuse you could come up with?”. Wayne said again, as if to repeat himself in utter disbelief. 
 
@@ -129,21 +129,21 @@ Another gasp came from he corner of the room where Lauren had sat.
 
 “Don’t worry love” Wayne said, “He’s ok. I promise”.
 
-A moment later, I opened my eyes. I felt right as rain. One moment liquid fire pulsated throughout my body, the next I felt as if I had just awoken from a 12 hour slumber. 
+A moment later, I opened my eyes. I felt right as rain. One moment liquid fire pulsated throughout my body, the next I felt as if I had just awoken from a 12 hour nap. 
 
 “Impossible” Muttered Kyle. As he came to my side, opening my eyelids, pulling his stethoscope from his lab coat and listening to my heart. 
 
 Thump. Thump. On and on my heart beat. 
 
-“But … but … how is this possible?” Kyle said in disbelief looking towards Wayne.
+“But … but … how is this possible?” Kyle said in utter disbelief looking towards Wayne.
 
 “All in good time Kyle, all in good time.” Wayne said. “But for now, just know this young man will be our guinea pig until we figure out the missing ingredient. We will find it, with or without his cooperation. He will bleed until he’s at the brink of death, he will recover and then he will bleed out again. Over and over until we find what it is we need Kyle, but make no mistake, he is the key to all of this” Wayne said as he made his way towards the door. 
 
 Every ache in my body, the incision in my arm and just about every ailment I’ve had in the past few weeks was just … it was just gone. 
 
-“How is this possible?” I said in disbelief. 
+“How is this possible?” I too said in disbelief. 
 
-Wayne stopped and turned around. 
+Wayne stopped and turned around. The look on his face made it seem like he'd just won a prize at the fair.
 
 “You are subject number 7 in the research project Genisis we were conducting. Our first human subject, Cassidy, 14 year old Leukemia patient passed away almost immediately. A few iteration and test subjects later led us to a breakthrough. Subject number 3 died only a few weeks after the serum was injected, with every subject’s longevity lasting only a few days more than the previous. But you … you were the last subject in our research and you happen to be the only one left alive all this time later. But why? What is different about you Alex?”
 
@@ -195,17 +195,17 @@ The cool breeze hit my skin and the fresh air hit my nostrils and it was as if I
 
 The van’s large sliding door swung open as if it were in a bonafide heist and Fanz appeared. 
 
-“How is he” Fanz asked, looking towards Kyle and then to me. 
+“How is he” Fanz asked, looking towards Kyle and then to me still slung across his shoulder. 
 
 “He’s fine” shaking me as if to show how proud he was of his accomplishment. 
 
 “Speak for yourself” I muttered. “I feel like I’ve spent the past 24 hours at a Chukie Cheese as the only adult on duty”.
 
-“That bad huh? Give it some time. You’ll mend.” Fanz smiled and nodded to the van. “Lets go”.
+“That bad huh? Give it some time. You’ll mend.” Fanz smiled and pointed towards the back of the van. “Lets go”.
 
-With that, Kyle threw me into the van and the next moment the facility and it’s screaming sirens were merely a dot in the rear view mirror. 
+With that, Kyle threw me in and the next moment the facility and it’s screaming sirens were merely a dot in the rear view mirror. 
 
-To where I didn’t know, but I’d re-evaluate my situation when we got there. 
+To where we were headed I didn’t know, but I’d re-evaluate my situation when we got there. 
 
 Kyle and Lauren sat in the seats in front of me, her head resting against his shoulder and his hand through her hair. 
 
