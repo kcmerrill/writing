@@ -269,7 +269,7 @@ A loud scream came from behind us and I turned around only to see one of the gua
 
 The driver dropped his rifle to the ground and turned to run. 
 
-Yeah. You don’t need to tell me twice. It’s pretty easy to run when you might become some creatures food. So I ran. Until the red numbers counted down to “1”. 
+Yeah. You don’t need to tell me twice. It’s pretty easy to run when you might become some creatures food. So I ran too. Until the red numbers counted down to “1”. 
 
 There wasn’t light at the end of the tunnel to my surprise. I suppose that only happens in fairy tales and good books. Nope, no light, only more questions, a lot of heavy breathing and a very, very large vaulted door that read:
 
